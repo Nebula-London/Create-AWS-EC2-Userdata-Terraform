@@ -10,4 +10,4 @@ So,stay tuned with this account, so we can learn together.
 
 Thank you. 😇
 
-![image](https://user-images.githubusercontent.com/114596788/227527644-06c7c8b5-d9f5-4e4a-b3b2-742e67c52449.png)
+![image](https://user-images.githubusercontent.com/114596788/227528230-544d0606-afd8-4861-9779-c382e8667075.png)
