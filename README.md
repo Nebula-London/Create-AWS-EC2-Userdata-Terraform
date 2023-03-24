@@ -10,4 +10,5 @@ So,stay tuned with this account, so we can learn together.
 
 Thank you. 😇
 
-![image](https://user-images.githubusercontent.com/114596788/227528230-544d0606-afd8-4861-9779-c382e8667075.png)
+
+![EC2+UserData drawio](https://user-images.githubusercontent.com/114596788/227529152-878fe44c-3dc3-417e-b886-371a6775f6f5.png)
